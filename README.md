@@ -1,2 +1,2 @@
 # PUBGBanned
-PUBG is banned in India
+PUBG mobile is banned in India
